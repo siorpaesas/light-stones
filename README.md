@@ -1,4 +1,4 @@
 # The Light Stones
 
-The Light Stones is a fictional story told inside and among the universe of the GPS bases game Ingress. Ingress is the first computer game where you will need to go outside to play.
+_The Light Stones_ is a fictional story that is playing among the universe of the GPS based game _Ingress_. Ingress was the first computer game where you will need to go outside to play.
 
